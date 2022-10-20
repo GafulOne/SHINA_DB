@@ -14,3 +14,8 @@
 
 ## Превью
 
+![Shina](https://user-images.githubusercontent.com/114806464/197076991-e9c34484-1bae-4411-9849-ab8c08afaacf.png)
+
+## Контакты
+
+[VK](https://vk.com/big_floppa32)
