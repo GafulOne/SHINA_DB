@@ -1,4 +1,5 @@
-![hacker](https://user-images.githubusercontent.com/114806464/197076139-0afc2b9f-c2ea-42d6-89a4-b23852d4d5f0.gif)
+![hacker](https://user-images.githubusercontent.com/114806464/197172215-3288eebd-17c3-479c-aa69-e8b149bd913c.gif)
+
 
 ## Вступление
 
